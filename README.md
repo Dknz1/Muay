@@ -9,11 +9,11 @@
 
 ## Pricing
 
+- 600 for 2 on 1 personal training (1 hour, per person)
 - 900 for 1 on 1 personal training (1 hour)
-- 600 each for 2 on 1 personal training (1 hour)
 - includes transport to you (within a 5km radias of Sathorn Bangkok)
 
-## Whats included
+## What's included
 - 1 hour session includes
    - warm up
    - Muay thai rounds
@@ -24,4 +24,4 @@
 
 ## Contact
 
-Ring Daniel Kerr on +66 65 245 1521
+Ring Daniel Kerr on [+66 65 245 1521](tel:+66-65-245-1521)
