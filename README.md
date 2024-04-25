@@ -11,8 +11,9 @@
 
 - 900 for 1 on 1 personal training (1 hour)
 - 600 each for 2 on 1 personal training (1 hour)
+- includes transport to you (within a 5km radias of Sathorn Bangkok)
 
-- 5km radias of Sathorn Bangkok
+## Whats included
 - 1 hour session includes
    - warm up
    - Muay thai rounds
